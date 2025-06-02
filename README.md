@@ -1,4 +1,4 @@
-👋 Hi, you can call Theo.
+👋 Hi, call me Theo.
 
 👀 I’m interested in all things I'm interested in.
 
