@@ -2,7 +2,7 @@
 
 👀 I’m interested in all things I'm interested in.
 
-🌱 I’m currently learning something I like.
+🌱 I’m currently learning something I haven't learned before.
 
 📫 How to reach me: just call my name, you'll reach me.
 
